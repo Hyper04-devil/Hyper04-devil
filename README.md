@@ -58,5 +58,5 @@ Indian Model School, Solapur
  📫 Contact  
  📧 Email: prem.rc04122002@gmail.com  
  📱 Phone: +91 9307399489  
- 🔗 LinkedIn: https://www.linkedin.com/in/premchavan)  
+ 🔗 LinkedIn: https://www.linkedin.com/in/premchavan 
  
